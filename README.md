@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Oliver15000
+- 👀 I’m interested in soccer and IT
+- 🌱 I’m currently doing an apprentice for an IT Job
